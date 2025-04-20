@@ -1,3 +1,3 @@
 
-![image](https://github.com/user-attachments/assets/86b7ef72-5233-4ca6-98d7-57c3ab5efd26) 
-[i like inabakumori](https://rentry.co/150)
+[19:42](https://rentry.co/150) ![image](https://github.com/user-attachments/assets/48354617-7bc2-46b2-b5f5-df3847b9081b)
+
